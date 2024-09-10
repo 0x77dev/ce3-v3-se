@@ -1,0 +1,1 @@
+Ender 3 V3 SE CURA 5.6 Profiles (Orca coming Soon) by PUMPR69 on Thingiverse: https://www.thingiverse.com/thing:6479422
